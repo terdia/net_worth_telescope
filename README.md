@@ -1,4 +1,4 @@
-# Privacy Policy and Terms of Service
+# Privacy Policy and Terms of Service (Net Worth Telescope)
 *Last Updated: April 20, 2025*
 
 ## Privacy Policy
